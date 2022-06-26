@@ -16,6 +16,8 @@ Kevin Arce Kessler
 
 Lucas Pérez
 
-Sthepany Carol Peves 
+Sthepany Carol Peves
+
+Agustín Rizzo
 
 **Muchas gracias por visitarnos**
